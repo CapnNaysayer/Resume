@@ -1,2 +1,0 @@
-# Resume
-Jordan's Resume
